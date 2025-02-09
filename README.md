@@ -1,5 +1,5 @@
 # wreckingbolt145
-How I got to high ranks of TSF, TRS and Tactical Triumph despite having no intention to do so, What really goes on behind the scenes, issues surrounding myself and whats next for me.
+How I got to high ranks of TSF, TRS and Tactical Triumph despite having no intention to do so, What really goes on behind the scenes, and whats next for me.
 
 First up, I decided to get the idea of writing this page after seeing that Demofocus did his and shared it with me, and as am speaking I am currently on my leave in TSF. Here is how I managed to get my way into the team behind TRS and some other stuff that came in its way.
 
@@ -41,16 +41,4 @@ This left me and 74 as Presidents and Seby as the VP, which is still the case to
 
 In this time I officially became part of the TT team and I am the community manager, where I will continue to support the projects and help the community to the best I can.
 
-# __Life behind the scenes and my troubles__
 
-Firstly life is never perfect, you will go through loads of tough shit and whatnot however there are great sides to it too, I have a family that I love and we do a lot together. I have loads of things to do in a day and try get through it as best as I can. However whilst I head off on leave, I have to confess about many issues I got involved in such as selling and using vapes as a 15 year old having started at 13, my serious addiction to drugs which I want to stop and get myself back on track and nearly getting robbed at knifepoint.
-
-**Vaping:** Before I begin, I strongly advice you to not take anything I mention here seriously, as of writing this I have not vaped for 6 weeks, and sold all my collection away so I make money and they dont go to waste. In 2022, I got interested in vapes because at the time I thought it was cool and shq so I managed to get my hands on one and I felt good after and slowly became addicted over time and then managed to get myself a whole collection to sell and make money off. However as of not long ago it has come back to me, recently I have been called out by bare man in school for selling vapes especially to youngers and on the last day of school before Christmas, I was caught vaping by a teacher and faced internal exclusion for 2 days upon return. Considering that I was going on leave, i decided to quit selling and got rid of my collection. Drug addiction can come into play but not gonna speak about it here.
-
-**Nearly getting robbed:** I dont like talking about this one but oh boy I have to make some confessions here, one time I was walking wearing an LV pouch on in some next up area and out of nowhere 3 tall big black men come out and threaten me with a knife and tried making me hand over my phone and the pouch however I found an opening and quickly escaped, hiding in a shop for over an hour and a half before calling my brother to quickly get me back home. Another occasion this time when I was with my friends, we all got held at knifepoint near a train station and whilst me and some of the others managed to escape, my friend decided to give his fake airpods to them since they were fake so why not?
-
-**Having an older sibling in prison, that i was close with:** This one is a very sensitive topic that I tend to avoid but I will have to confess to it, when I was 9 my brother got into some beef and next thing I know is police coming to our house and I was told to stay in my room and whatnot, and for many years my older brother told me and so did my parents that he was only on holiday, however at 11 I realised that he was in prison, that same year he came out and then went back in for other shit which I will strictly never talk about what he did and how long hes there for. Upon clocking that he is in prison for a while I got heavily pissed off and started losing it at home. But then he assured me that nothing will go wrong and he will be a changed man. I visit him quite often in where his prison is and speak to him over the phone on a daily.
-
-**Getting into beef and trouble in school:** This is the last trouble I will speak about, despite having a good behaviour record I got involved in major shit in school and got suspended. I sometimes got into fights with others and despite peers claiming I win these fights physically, mentally I go through a lot of anger and mostly get defensive because the people I beef with or get into scraps with arent worth my time at all. I sometimes messed around in school and stuff but I have changed up a lot.
-
-# __The positive aspects of life__
